@@ -1,1 +1,1 @@
-alright, this is a backup port since im trying to fix an ending, it may not work, my bad
+Easy wins. Hollow Knight full game. Please don't punch your chromebook screen in... thats expensive.
